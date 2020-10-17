@@ -17,11 +17,10 @@ Hi, I’m Jomel, call me **Jom** for short 💕.
 ----
 🙄 My Nonesense Questions.
 
-*If a guy that was about to die in the electric chair had a heart attack should they save him?
-*How to manage my time
-*If you dug a hole through the center of the earth, and jumped in, would you stay at the center because of gravity?
-*Why don’t the hairs on your arms get split ends?
-*What do you do when you see an endangered animal that is eating an endangered plant?
+*If a guy that was about to die in the electric chair had a heart attack should they save him?<br>
+*If you dug a hole through the center of the earth, and jumped in, would you stay at the center because of gravity?<br>
+*Why don’t the hairs on your arms get split ends?<br>
+*What do you do when you see an endangered animal that is eating an endangered plant?<br>
 
 
 ----
